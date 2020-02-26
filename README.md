@@ -1,0 +1,1 @@
+# Szamsorozat-reszsorozata
